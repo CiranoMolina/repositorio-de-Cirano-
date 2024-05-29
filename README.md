@@ -4,4 +4,4 @@
 
 ## me gusta programar y tan bionica 🎵 
 
-## fin de este repositorio por ahora 
+## fin del repositorio por ahora 
